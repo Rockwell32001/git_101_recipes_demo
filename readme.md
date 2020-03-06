@@ -11,4 +11,9 @@ A Spinach and Sausage dish served over Rice with some Soy Sauce
 1. 1 pount of sausage
 1. 1 whole onion, minced
 1. A whole BULB of Garlic. No joke, a whole BULB. Not a freaking clove, a BULB.
+1. 1 can of Cream of Mushroom Soup
 
+### Instructions
+
+1. Brown the meat
+1. Add the onions
