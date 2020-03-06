@@ -4,7 +4,7 @@ Here are some of my favorite recipes.
 
 ## Spinach Dish
 
-A Spinach and Sausage dish served over Rice with some Soy Sauce
+A Spinach and Sausage dish served over Rice with some sweet and sour Sauce
 
 ### Ingredients
 1. a brick or bag of frozen sausage
